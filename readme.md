@@ -1,0 +1,1 @@
+https://app.patika.dev/cagatayyd tarafından oluşturulmuş Ödev2
